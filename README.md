@@ -1,1 +1,1 @@
-# Coursera_Capstone
+# Real Estate Opportunities in Redding, California
